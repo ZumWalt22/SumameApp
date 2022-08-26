@@ -1,6 +1,6 @@
-ƒvƒ‰ƒCƒoƒV[ƒ|ƒŠƒV[
+ãƒ—ãƒ©ã‚¤ãƒã‚·ãƒ¼ãƒãƒªã‚·ãƒ¼
 
-EŒÂlî•ñŽûW‚Ì—L–³
-ŒÂlî•ñ‚âƒfƒoƒCƒXî•ñ‚ðŽûWA•Û‘¶A‹¤—L‚µ‚Ü‚¹‚ñ
+ãƒ»å€‹äººæƒ…å ±åŽé›†ã®æœ‰ç„¡
+å€‹äººæƒ…å ±ã‚„ãƒ‡ãƒã‚¤ã‚¹æƒ…å ±ã‚’åŽé›†ã€ä¿å­˜ã€å…±æœ‰ã—ã¾ã›ã‚“
 
-’ñ‹ŸŒ³ Zumwalt ˜A—æ zumwalt221@yahoo.co.jp
+æä¾›å…ƒ Zumwalt é€£çµ¡å…ˆ zumwalt221@yahoo.co.jp
